@@ -1,7 +1,5 @@
 The stipper using on my server
 
-join now!
-steam://connect/server.tsukasaze.com:27015
 https://tsukasaze.com/discord
           
 #removed list(private stripper)
